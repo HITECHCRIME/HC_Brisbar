@@ -4,33 +4,40 @@ Chciałbym żeby ekipa brismańska spisała najbardziej wiekopomne motywy Brisma
 
 https://www.youtube.com/watch?v=wiKgtOpj8XQ
 
+brisman style
+
+aye
+
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
 jak ganju coś jebnie to brisklasa nie może, (walnie)
-legenda(rny) kasinsky bez trudu zaoże, 
+legenda kasinsky bez trudu zaoże, 
 jak kawa na stole to przelew przez morze
 
 duchem tego baru ciociacaro, rap woman, rap shaman
-póki opłaszczeni klienci nie do końca pryśli (do brisbaru) ? 
-pozwólmy naszym meblom wyrazić swe drinki, turbo?
+póki opłaszczeni klienci nie do końca pryśli (z brisbaru) ? 
+pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwólmy naszym meblom wypić swoje drinki. turbo? hm.)
 
 jedziesz na ten bit hankozaur posłuchaj jej myśli
 że co? o co kaman, wchodzisz do brisbaru, okno zapisane flamastrami, 
 czy to punk czy to bajzel, zamknij japę jesteś z nami (zamów kawę jesteś z nami)
-
 swoje własne syny czy kuzyni to my wszyscy
-ganju tłuste beaty z pianki robi, to znamiona majstersztyku
+marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
 potem dzień jak co dzień, zamiatam podłogi
 zamykam ten bar kawowego przepychu
 
+ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
+nowa paka kawy oczy mu się błyszczą
+ręka w górę wężyk blast, zbija, plask
+x
+co mu powiesz będzie szczery, taki zakręcony drań
+będzie robił szalone oczy do kamery
+
+chcąc tych marzeń, craving_miracles, a jakże
+
+
+
 
 już nie mogę słuchać swego ryku
-
-ojcie założyciel gaca, kiedy wraca
-ręka do góry wężyk blast, zbija plaska
-a co mu powiesz to się uśmiechnie
-
-
-
 kiedy sonia ender wpadną organizować swoje bitwy
 te psy są nam drogie
 
