@@ -15,7 +15,7 @@ jak brisman na stole to przelew przez morze
 
 duchem tego baru ciociacaro, rap woman, rap shaman
 póki opłaszczeni klienci nie do końca pryśli (z brisbaru) ? 
-pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwól naszym meblom wypić swoje drinki. turbo? hm.)
+pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwól naszym meblom wypić drinki. turbo? milczę.)
 
 jedziesz na ten bit hankozaur posłuchaj jej myśli
 że co? o co kaman, wchodzisz do brisbaru, okno zapisane flamastrami, 
@@ -28,7 +28,7 @@ zamykam ten bar kawowego przepychu
 ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
 nowa paka oczy mu się błyszczą, on to wie najlepiej trening czyni mistrza
 ręka w górę wężyk blast, zbija, plask
-jak ci powie będzie szczery, taki zakręcony drań
+jak ci powie będzie szczery drań, taki zakręcony
 robi oczy do kamery
 
 chcąc tych marzeń, craving_miracles, a jakże
