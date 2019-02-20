@@ -49,7 +49,7 @@ kiedy ender z sonią wpadną,
 odbywać swoje odwieczne bitwy
 wszystkie psy nie są tutaj srogie drogie, są bezcenne
 już nie słyszę tego ulicznego ryku
-przez fale wegańskiego mleka 
+poprzez fale wegańskiego mleka 
 jak wszyscy wiemy czekolada to ma mekka
 
 
