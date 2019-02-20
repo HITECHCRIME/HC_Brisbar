@@ -6,7 +6,7 @@ https://www.youtube.com/watch?v=wiKgtOpj8XQ
 
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
 jak ganju coś jebnie to brisklasa nie może, (walnie)
-legenda kasinsky bez trudu zaoże, 
+legenda(rny) kasinsky bez trudu zaoże, 
 jak kawa na stole to przelew przez morze
 
 duchem tego baru ciociacaro, rap woman, rap shaman
@@ -20,6 +20,7 @@ czy to punk czy to bajzel, zamknij japę jesteś z nami (zamów kawę jesteś 
 swoje własne syny czy kuzyni to my wszyscy
 ganju tłuste beaty z pianki robi, to znamiona majstersztyku
 potem dzień jak co dzień, zamiatam podłogi
+zamykam ten bar kawowego przepychu
 
 
 już nie mogę słuchać swego ryku
