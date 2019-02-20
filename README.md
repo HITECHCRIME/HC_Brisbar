@@ -2,8 +2,6 @@
 
 https://www.youtube.com/watch?v=wiKgtOpj8XQ
 
-
-
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
 jak ganju coś jebnie to brisklasa nie może, (walnie)
 legenda kasinsky bez trudu zaoże, 
