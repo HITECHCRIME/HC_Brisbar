@@ -25,6 +25,10 @@ zamykam ten bar kawowego przepychu
 
 już nie mogę słuchać swego ryku
 
+ojcie założyciel gaca, kiedy wraca
+ręka do góry wężyk blast, zbija plaska
+a co mu powiesz to się uśmiechnie
+
 
 
 kiedy sonia ender wpadną organizować swoje bitwy
