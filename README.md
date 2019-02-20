@@ -1,5 +1,7 @@
 # HC_Brisbar
 
+Chciałbym żeby ekipa brismańska spisała najbardziej wiekopomne motywy Brismańskie.
+
 https://www.youtube.com/watch?v=wiKgtOpj8XQ
 
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
@@ -12,10 +14,8 @@ póki opłaszczeni klienci nie do końca pryśli (do brisbaru)
 pozwólmy naszym meblom wyrazić swe drinki, turbo?
 
 jedziesz na ten bit hankozaur posłuchaj jej myśli
-że co? o co kaman
-
-wchodzisz do brisbaru, okno zapisane flamastrami, 
-czy to punk czy to bajzel, zamknij japę jesteś z nami
+że co? o co kaman, wchodzisz do brisbaru, okno zapisane flamastrami, 
+czy to punk czy to bajzel, zamknij japę jesteś z nami (zamów kawę jesteś z nami)
 
 syny czy kuzyni
 ganju tłuste beaty z pianki robi 
