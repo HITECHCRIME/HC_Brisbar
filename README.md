@@ -8,6 +8,7 @@ brisman style
 
 aye
 
+[CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
 jak ganju coś jebnie to brisklasa nie może, (walnie)
 legenda kasinsky bez trudu zaoże, 
@@ -17,6 +18,7 @@ duchem tego baru ciociacaro, rap woman, rap shaman
 póki opłaszczeni klienci nie do końca pryśli (z brisbaru) ? 
 pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwól naszym meblom wypić drinki. turbo? milczę.)
 
+[VERSE 1]
 jedziesz na ten bit hankozaur posłuchaj jej myśli
 że co? o co kaman, wchodzisz do brisbaru, okno zapisane flamastrami, 
 czy to punk czy to bajzel, zamknij japę jesteś z nami (zamów kawę jesteś z nami)
@@ -31,11 +33,21 @@ ręka w górę wężyk blast, zbija, plask
 jak ci powie będzie szczery drań, taki zakręcony
 robi oczy do kamery
 
-chcąc tych marzeń, craving_miracles, a jakże
+[CHORUS]
+travelling kitty, tfu ambrożanka tak ruda jak ogień 
+jak ganju coś jebnie to brisklasa nie może, (walnie)
+legenda kasinsky bez trudu zaoże, 
+jak brisman na stole to przelew przez morze
 
+duchem tego baru ciociacaro, rap woman, rap shaman
+póki opłaszczeni klienci nie do końca pryśli (z brisbaru) ? 
+pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwól naszym meblom wypić drinki. turbo? milczę.)
+
+[VERSE 2]
+chcąc tych marzeń, craving_miracles, a jakże
 kiedy ender z sonią wpadną, 
 odbywać swoje odwieczne bitwy
-wszystkie psy nie są tu drogie, są bezcenne
+wszystkie psy nie są tutaj srogie drogie, są bezcenne
 już nie słyszę tego ulicznego ryku
 przez fale wegańskiego mleka 
 jak wszyscy wiemy czekolada to ma mekka
