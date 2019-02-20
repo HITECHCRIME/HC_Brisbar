@@ -34,10 +34,11 @@ robi oczy do kamery
 chcąc tych marzeń, craving_miracles, a jakże
 
 kiedy ender z sonią wpadną, 
-odbywać swoje bitwy
+odbywać swoje odwieczne bitwy
 wszystkie psy nie są tu drogie, są bezcenne
-już nie mogę słuchać tego ryku
-przez fale vegańskich werbli
+już nie słyszę tego ulicznego ryku
+przez fale wegańskiego mleka 
+jak wszyscy wiemy czekolada to ma mekka
 
 
 
