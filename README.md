@@ -11,11 +11,11 @@ aye
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
 jak ganju coś jebnie to brisklasa nie może, (walnie)
 legenda kasinsky bez trudu zaoże, 
-jak kawa na stole to przelew przez morze
+jak brisman na stole to przelew przez morze
 
 duchem tego baru ciociacaro, rap woman, rap shaman
 póki opłaszczeni klienci nie do końca pryśli (z brisbaru) ? 
-pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwólmy naszym meblom wypić swoje drinki. turbo? hm.)
+pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwól naszym meblom wypić swoje drinki. turbo? hm.)
 
 jedziesz na ten bit hankozaur posłuchaj jej myśli
 że co? o co kaman, wchodzisz do brisbaru, okno zapisane flamastrami, 
@@ -26,32 +26,32 @@ potem dzień jak co dzień, zamiatam podłogi
 zamykam ten bar kawowego przepychu
 
 ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
-nowa paka kawy oczy mu się błyszczą
+nowa paka oczy mu się błyszczą, on to wie najlepiej trening czyni mistrza
 ręka w górę wężyk blast, zbija, plask
-x
-co mu powiesz będzie szczery, taki zakręcony drań
-będzie robił szalone oczy do kamery
+jak ci powie będzie szczery, taki zakręcony drań
+robi oczy do kamery
 
 chcąc tych marzeń, craving_miracles, a jakże
 
+kiedy ender z sonią wpadną, 
+odbywać swoje bitwy
+wszystkie psy nie są tu drogie, są bezcenne
+już nie mogę słuchać tego ryku
+przez fale vegańskich werbli
 
 
 
-już nie mogę słuchać swego ryku
-kiedy sonia ender wpadną organizować swoje bitwy
-te psy są nam drogie
 
 
-
-vegan
-ganju rwootboi
-hankozaur
-gaca kawiarnista
-dagmara (craving miracles)
-sonia ender
-okno zapisane flamastrami
-toniczki mikuś
+vegan - done
+ganju rwootboi - done
+hankozaur - done
+gaca kawiarnista - done
+dagmara (craving miracles) - done
+sonia ender - done
+okno zapisane flamastrami - done
+toniczki mikuś 
 toniczki 2
-marzia (nervosol997)
-syny
+marzia (nervosol997) - marzia
+syny - marzia
 
