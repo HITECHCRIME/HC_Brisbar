@@ -8,13 +8,17 @@ legenda kasinsky bez trudu zaoże,
 jak kawa na stole to przelew przez morze
 
 duchem tego baru ciociacaro, rap woman, rap shaman
-póki opłaszczeni klienci nie do końca pryśli
+póki opłaszczeni klienci nie do końca pryśli (do brisbaru)
 pozwólmy naszym meblom wyrazić swe drinki, turbo?
+
 jedziesz na ten bit hankozaur posłuchaj jej myśli
 że co? o co kaman
 
 sonia czy ender te psy są nam drogie
 okno zapisane flamastrami, czy to punk czy to bajzel, zamknij japę jesteś z nami
+syny czy kuzyni
+ganju tłuste beaty robi 
+
 
 ganju rwootboi
 hankozaur
@@ -24,4 +28,6 @@ sonia ender
 okno zapisane flamastrami
 toniczki mikuś
 toniczki 2
+marzia (nervosol997)
+syny
 
