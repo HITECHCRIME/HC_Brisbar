@@ -55,8 +55,9 @@ wszystkie psy nie są tutaj srogie drogie, są bezcenne
 choć bez wątpienia toniczki są najlepsze!
 
 a teraz proszę wymieniamy to co mamy:
-etiopia, honduras, energia, brawura
-
+etiopia, honduras, 
+energia, brawura
+kontrast, x
 
 
 
