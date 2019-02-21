@@ -56,6 +56,7 @@ jak wszyscy wiemy z doświadczenia, w naszych genach
 czekolada w płynie to niektórych mekka
 
 chcąc tych marzeń, ciach
+(ganju zrób mi fat bass, narób dymu tu)
 craving_miracles, daga rządzi - a jakże
 kiedy ender z sonią wpadną na naszą bazę, 
 odbywać będą się wieczne bitwy zazdrości, 
