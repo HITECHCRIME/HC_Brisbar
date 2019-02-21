@@ -30,10 +30,15 @@ potem dzień jak co dzień, zamiatam podłogi
 zamykam ten bar kawowego przepychu
 (jedna sprawa, latte art jest)
 ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
-nowa paka oczy mu się błyszczą, on (to) wie najlepiej trening czyni (latte) mistrza (trening budzi życia)
-ręka w górę wężyk blast, zbija, plask
+nowa paka oczy mu się błyszczą, on (to) wie najlepiej trening czyni (latte) mistrza 
+ręka w górę wężyk blast, zbija, plask, (ten trening budzi życia)
 jak ci powie będzie szczery, taki zakręcony drań
-robi oczy do kamery
+robi oczy do kamery 
+[VERSE 2]
+już nie słyszę tego ulicznego ryku
+poprzez fale wegańskiego mleka, z wyjściem znowu zwlekam...
+jak wszyscy wiemy z doświadczenia, w naszych genach
+czekolada w płynie to niektórych mekka
 
 [CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
@@ -44,11 +49,6 @@ duchem tego baru ciociacaro, rap woman, rap shaman
 póki opłaszczeni klienci nie do końca pryśli (z brisbaru) ? 
 pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwól naszym meblom wypić drinki. turbo? milczę.)
 
-[VERSE 2]
-już nie słyszę tego ulicznego ryku
-poprzez fale wegańskiego mleka, z wyjściem znowu zwlekam...
-jak wszyscy wiemy z doświadczenia, w naszych genach
-czekolada w płynie to niektórych mekka
 
 chcąc tych marzeń, ciach
 (ganju zrób mi fat bass, narób dymu tu)
