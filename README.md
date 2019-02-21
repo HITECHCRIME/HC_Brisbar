@@ -28,9 +28,9 @@ swoje własne syny czy kuzyni to my wszyscy
 marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
 potem dzień jak co dzień, zamiatam podłogi
 zamykam ten bar kawowego przepychu
-x
+(jedna sprawa, latte art jest)
 ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
-nowa paka oczy mu się błyszczą, on (to) wie najlepiej trening czyni mistrza
+nowa paka oczy mu się błyszczą, on (to) wie najlepiej trening czyni (latte) mistrza
 ręka w górę wężyk blast, zbija, plask
 jak ci powie będzie szczery, taki zakręcony drań
 robi oczy do kamery
