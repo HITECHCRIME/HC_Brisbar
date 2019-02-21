@@ -9,7 +9,7 @@ groove version: https://www.youtube.com/watch?v=uf4R4xCacJQ
 
 brisman style
 
-aye
+aye 
 
 [CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień
