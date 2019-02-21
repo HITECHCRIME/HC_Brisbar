@@ -18,7 +18,7 @@ legenda kasinsky bez trudu zaoże,
 jak brisman na stole to przelew przez morze
 duchem tego baru ciociacaro, rap woman, rap shaman
 póki opłaszczeni klienci nie do końca pryśli - z brisbaru 
-pozwól naszym meblom dopić drinki. turbo! (pozwólmy naszym meblom wyrazić swe drinki, turbo? milczę)
+pozwól naszym meblom dopić drinki. turbo! cascara! (pozwólmy naszym meblom wyrazić swe drinki, turbo? milczę)
 
 [VERSE 1]
 jedziesz na ten bit hankozaur posłuchaj jej myśli
@@ -29,12 +29,11 @@ marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
 potem dzień jak co dzień, zamiatam podłogi
 zamykam ten bar kawowego przepychu
 
-ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
-nowa paka oczy mu się błyszczą, 
-trening ten czyni (latte) mistrza, on to wie ten trening budzi życia
-zakręcony drań  robi oczy do kamery 
-- jak ci powie będzie szczery, ręka w górę, węgorz blast, zbija, plask, 
-
+ojciec założyciel gaca, gacakawiarnista (kiedy wchodzi)
+nowa paka? oczy mu się błyszczą, ręka w górę, węgorz blast, zbija, plask, 
+zakręcony drań robi oczy do kamery - jak coś powie będzie szczery
+trening ten czyni jego (latte) mistrza, 
+- jak coś powie będzie szczery.
 
 alt:
 ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
@@ -45,10 +44,19 @@ robi oczy do kamery, on (to) wie  trening czyni (latte) mistrza
 
 czekaj co latte mistrza? przecież lwy i konie
 tworzą jak szalone, naklejkami poświadczone
-tunes'a z ziaren, pianek harem
+tunes'y z ziaren, pianek harem
 to postawi cię na nogi jaro jarosz
-to nie konkurencja która szasta
-najlepsza kawa w mieście - i basta
+to nie konkurencja która szasta pusto
+a teraz proszę wymieniamy to co mamy:
+etiopia, honduras, 
+energia, brawura
+kontrast, charakter i kultura, 
+to jest najlepsze kawomiejsce w mieście - i basta, krótko
+
+brisman to ukryty unikat, taki kawy artysta
+osadzony w press press lej lej 
+
+
 
 chcąc tych marzeń, ciach
 (ganju zrób mi fat bass, narób dymu tu)
