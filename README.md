@@ -12,7 +12,7 @@ brisman style
 aye
 
 [CHORUS]
-travelling kitty, tfu ambrożanka tak ruda jak ogień =
+travelling kitty, tfu ambrożanka tak ruda jak ogień
 jak ganju coś jebnie to brisklasa nie może, (walnie) (briscrew)
 legenda kasinsky bez trudu zaoże, 
 jak brisman na stole to przelew przez morze
@@ -35,11 +35,6 @@ ręka w górę wężyk blast, zbija, plask
 jak ci powie będzie szczery, taki zakręcony drań
 robi oczy do kamery
 
-a teraz proszę wymieniamy to co mamy:
-etiopia, honduras, 
-energia i brawura
-kontrast i kultura
-
 [CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
 jak ganju coś jebnie to brisklasa nie może, (walnie)
@@ -58,16 +53,25 @@ czekolada w płynie to niektórych mekka
 chcąc tych marzeń, ciach
 (ganju zrób mi fat bass, narób dymu tu)
 craving_miracles, daga rządzi - a jakże
-kiedy ender z sonią wpadną na naszą bazę, 
-odbywać będą się wieczne bitwy zazdrości, 
+kiedy ender z sonią wpadną pędem w naszą bazę, 
+odbywać się będą wieczne bitwy zazdrości, 
 wszystkie psy nie są tutaj srogie drogie, są bezcenne
+ale nie ujmujmy cechom gości
+
+
 choć bez wątpienia toniczki są najlepsze!
 
 a teraz proszę wymieniamy to co mamy:
 etiopia, honduras, 
 energia, brawura
-kontrast i kultura, brisman to unikat
-press press lej lej taki kawy artysta
+kontrast, charakter i kultura, 
+brisman to ukryty unikat, taki kawy artysta
+osadzony w press press lej lej 
+
+a teraz proszę wymieniamy to co mamy:
+etiopia, honduras, 
+energia i brawura
+kontrast i kultura
 
 są i lwy i konie, menażeria różnorodności
 rzepki i 
