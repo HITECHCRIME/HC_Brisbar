@@ -27,19 +27,10 @@ potem dzień jak co dzień, zamiatam podłogi
 zamykam ten bar kawowego przepychu
 
 ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
-nowa paka oczy mu się błyszczą, on to wie najlepiej trening czyni mistrza
+nowa paka oczy mu się błyszczą, on (to) wie najlepiej trening czyni mistrza
 ręka w górę wężyk blast, zbija, plask
-jak ci powie będzie szczery drań, taki zakręcony
-robi oczy do kamery, chcąc tych marzeń, 
-craving_miracles, daga rządzi a jakże
-kiedy ender z sonią wpadną, 
-odbywać wieczne zazdrości bitwy
-wszystkie psy nie są tutaj srogie drogie, są bezcenne
-
-już nie słyszę tego ulicznego ryku
-poprzez fale wegańskiego mleka, 
-jak wszyscy wiemy z doświadczenia,
-czekolada w płynie dla niektórych mekka
+jak ci powie będzie szczery, taki zakręcony drań
+robi oczy do kamery
 
 [CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
@@ -52,13 +43,17 @@ póki opłaszczeni klienci nie do końca pryśli (z brisbaru) ?
 pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwól naszym meblom wypić drinki. turbo? milczę.)
 
 [VERSE 2]
-chcąc tych marzeń, craving_miracles, a jakże
-kiedy ender z sonią wpadną, 
-odbywać swoje odwieczne bitwy
-wszystkie psy nie są tutaj srogie drogie, są bezcenne
 już nie słyszę tego ulicznego ryku
-poprzez fale wegańskiego mleka 
-jak wszyscy wiemy czekolada to niektórych mekka
+poprzez fale wegańskiego mleka, 
+jak wszyscy wiemy z doświadczenia,
+czekolada w płynie dla niektórych mekka
+
+chcąc tych marzeń, ciach
+craving_miracles, daga rządzi a jakże
+kiedy ender z sonią wpadną, 
+odbywać wieczne zazdrości bitwy
+wszystkie psy nie są tutaj srogie drogie, są bezcenne
+choć bez wątpienia toniczki są najlepsze!
 
 
 
