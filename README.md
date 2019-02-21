@@ -13,7 +13,7 @@ aye
 
 [CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień
-jak ganju coś walnie to brisklasa nie może, (walnie) (briscrew)
+jak ganju coś walnie to brisklasa nie może, (jebnie) (briscrew)
 legenda kasinsky bez trudu zaoże, 
 jak brisman na stole to przelew przez morze
 duchem tego baru ciociacaro, rap woman, rap shaman
@@ -30,9 +30,11 @@ potem dzień jak co dzień, zamiatam podłogi
 zamykam ten bar kawowego przepychu
 
 ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
-nowa paka oczy mu się błyszczą, on (to) wie  trening czyni (latte) mistrza 
-ręka w górę wężyk blast, zbija, plask, (ten trening budzi życia)
-jak ci powie będzie szczery, zakręcony drań robi oczy do kamery 
+nowa paka oczy mu się błyszczą, 
+trening ten czyni (latte) mistrza, on to wie ten trening budzi życia
+zakręcony drań  robi oczy do kamery 
+- jak ci powie będzie szczery, ręka w górę, węgorz blast, zbija, plask, 
+
 
 alt:
 ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
@@ -43,10 +45,10 @@ robi oczy do kamery, on (to) wie  trening czyni (latte) mistrza
 
 czekaj co latte mistrza? przecież lwy i konie
 tworzą jak szalone, naklejkami poświadczone
-
-
-to nie jest konkurencja która szasta
-najlepsza kawa w mieście i basta
+tunes'a z ziaren, pianek harem
+to postawi cię na nogi jaro jarosz
+to nie konkurencja która szasta
+najlepsza kawa w mieście - i basta
 
 chcąc tych marzeń, ciach
 (ganju zrób mi fat bass, narób dymu tu)
@@ -93,9 +95,6 @@ kontrast i kultura
 są i lwy i konie, menażeria różnorodności
 rzepki i 
 
-tunes'a z ziaren
-pianek harem
-to postawi ci na nogi
 
 
 
