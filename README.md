@@ -29,11 +29,10 @@ marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
 potem dzień jak co dzień, zamiatam podłogi
 zamykam ten bar kawowego przepychu
 
-ojciec założyciel gaca, gacakawiarnista (kiedy wchodzi)
+ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
 nowa paka? oczy mu się błyszczą, ręka w górę, węgorz blast, zbija, plask, 
 zakręcony drań robi oczy do kamery - jak coś powie będzie szczery
-trening ten czyni jego (latte) mistrza, 
-- jak coś powie będzie szczery.
+trening ten czyni jego (latte) mistrza, nic nie zrobisz
 
 alt:
 ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
@@ -51,7 +50,8 @@ a teraz proszę wymieniamy to co mamy:
 etiopia, honduras, 
 energia, brawura
 kontrast, charakter i kultura, 
-to jest najlepsze kawomiejsce w mieście - i basta, krótko
+to jest najlepsze kawomiejsce w mieście - 
+impostorom dobrej kofeiny nie wierz, i basta, krótko
 
 brisman to ukryty unikat, taki kawy artysta
 osadzony w press press lej lej 
