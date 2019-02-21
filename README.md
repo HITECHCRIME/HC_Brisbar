@@ -30,7 +30,7 @@ potem dzień jak co dzień, zamiatam podłogi
 zamykam ten bar kawowego przepychu
 (jedna sprawa, latte art jest)
 ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
-nowa paka oczy mu się błyszczą, on (to) wie najlepiej trening czyni (latte) mistrza
+nowa paka oczy mu się błyszczą, on (to) wie najlepiej trening czyni (latte) mistrza (trening budzi życia)
 ręka w górę wężyk blast, zbija, plask
 jak ci powie będzie szczery, taki zakręcony drań
 robi oczy do kamery
