@@ -5,6 +5,7 @@ Chciałbym żeby ekipa brismańska spisała najbardziej wiekopomne motywy Brisma
 https://www.youtube.com/watch?v=wiKgtOpj8XQ
 
 sad version: https://www.youtube.com/watch?v=JjH7GDd35XI Instrumental Hip Hop " Dust Horizon " Boom Bap /// [ Hanto ]
+groove version: https://www.youtube.com/watch?v=uf4R4xCacJQ
 
 brisman style
 
@@ -55,16 +56,17 @@ jak wszyscy wiemy z doświadczenia, w naszych genach
 czekolada w płynie to niektórych mekka
 
 chcąc tych marzeń, ciach
-craving_miracles, daga rządzi a jakże
-kiedy ender z sonią wpadną na bazę, 
-odbywać wieczne bitwy zazdrości, 
+craving_miracles, daga rządzi - a jakże
+kiedy ender z sonią wpadną na naszą bazę, 
+odbywać będą się wieczne bitwy zazdrości, 
 wszystkie psy nie są tutaj srogie drogie, są bezcenne
 choć bez wątpienia toniczki są najlepsze!
 
 a teraz proszę wymieniamy to co mamy:
 etiopia, honduras, 
 energia, brawura
-kontrast, kultura
+kontrast i kultura, brisman to unikat
+press press lej lej taki kawy artysta
 
 są i lwy i konie, menażeria różnorodności
 rzepki i 
