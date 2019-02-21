@@ -36,6 +36,11 @@ trening ten czyni jego latte mistrza,
 
 nic nie zrobisz, budzi życia
 
+już nie słyszę tego ulicznego ryku
+poprzez fale wegańskiego mleka, z wyjściem znowu zwlekam...
+jak wszyscy wiemy z doświadczenia, w naszych genach
+czekolada w płynie to niektórych mekka   
+
 czekaj co, latte mistrza? 
 
 przecież lwy i konie, tworzą jak szalone, 
