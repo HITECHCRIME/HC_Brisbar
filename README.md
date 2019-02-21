@@ -43,6 +43,8 @@ robi oczy do kamery, on (to) wie  trening czyni (latte) mistrza
 
 czekaj co latte mistrza? przecież lwy i konie
 tworzą jak szalone, naklejkami poświadczone
+
+
 to nie jest konkurencja która szasta
 najlepsza kawa w mieście i basta
 
