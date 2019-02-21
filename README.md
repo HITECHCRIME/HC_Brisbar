@@ -84,6 +84,6 @@ sonia ender - done
 okno zapisane flamastrami - done
 toniczki mikuś 
 toniczki 2
-marzia (nervosol997) - marzia
-syny - marzia
+marzia (nervosol997) - done
+syny - done
 
