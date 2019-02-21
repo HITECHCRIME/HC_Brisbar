@@ -34,6 +34,11 @@ ręka w górę wężyk blast, zbija, plask
 jak ci powie będzie szczery, taki zakręcony drań
 robi oczy do kamery
 
+a teraz proszę wymieniamy to co mamy:
+etiopia, honduras, 
+energia i brawura
+kontrast i kultura
+
 [CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
 jak ganju coś jebnie to brisklasa nie może, (walnie)
@@ -51,8 +56,8 @@ czekolada w płynie to niektórych mekka
 
 chcąc tych marzeń, ciach
 craving_miracles, daga rządzi a jakże
-kiedy ender z sonią wpadną, 
-odbywać wieczne zazdrości bitwy, 
+kiedy ender z sonią wpadną na bazę, 
+odbywać wieczne bitwy zazdrości, 
 wszystkie psy nie są tutaj srogie drogie, są bezcenne
 choć bez wątpienia toniczki są najlepsze!
 
