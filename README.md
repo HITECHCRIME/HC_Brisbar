@@ -20,7 +20,7 @@ duchem tego baru ciociacaro, rap woman, rap shaman
 póki opłaszczeni klienci nie do końca pryśli - z brisbaru 
 pozwól naszym meblom dopić drinki. turbo! cascara! (pozwólmy naszym meblom wyrazić swe drinki, turbo? milczę)
 
-[VERSE 1]
+[VERSE]
 jedziesz na ten bit hankozaur posłuchaj jej myśli
 że co? o co kaman, wchodzisz do podziemia, okno zapisane flamastrami
 czy to punk czy to bajzel, zamów kawę jesteś z nami (zamknij japę jesteś z nami)
@@ -30,47 +30,41 @@ potem dzień jak co dzień, zamiatam podłogi
 zamykam ten bar kawowego przepychu
 
 ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
-nowa paka? oczy mu się błyszczą, ręka w górę, węgorz blast, zbija, plask, 
+nowa paka oczy mu się błyszczą, ręka w górę, węgorz blast, zbija, plask, 
 zakręcony drań robi oczy do kamery - jak coś powie będzie szczery
-trening ten czyni jego (latte) mistrza, nic nie zrobisz
+trening ten czyni jego latte mistrza, nic nie zrobisz, budzi życia
 
-alt:
-ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
-nowa paka oczy mu się błyszczą, 
-ręka w górę wężyk blast, zbija, plask, (trening budzi życia)
-jak ci powie będzie szczery, taki zakręcony drań
-robi oczy do kamery, on (to) wie  trening czyni (latte) mistrza
+czekaj co latte mistrza? 
 
-czekaj co latte mistrza? przecież lwy i konie
-tworzą jak szalone, naklejkami poświadczone
-tunes'y z ziaren, pianek harem
+przecież lwy i konie, tworzą jak szalone, 
+naklejkami poświadczone, tunes'y z ziaren, pianek harem
 to postawi cię na nogi jaro jarosz
 to nie konkurencja która szasta pusto
-a teraz proszę wymieniamy to co mamy:
-etiopia, honduras, 
-energia, brawura
-kontrast, charakter i kultura, 
-to jest najlepsze kawomiejsce w mieście - 
-impostorom dobrej kofeiny nie wierz, i basta, krótko
 
 brisman to ukryty unikat, taki kawy artysta
 osadzony w press press lej lej 
-
-
-
 chcąc tych marzeń, ciach
 (ganju zrób mi fat bass, narób dymu tu)
 craving_miracles, daga rządzi - a jakże
+
+już nie słyszę tego ulicznego ryku
+poprzez fale wegańskiego mleka, z wyjściem znowu zwlekam...
+jak wszyscy wiemy z doświadczenia, w naszych genach
+czekolada w płynie to niektórych mekka
+
 kiedy ender z sonią wpadną pędem w naszą bazę, 
 odbywać się będą wieczne bitwy zazdrości, 
 wszystkie psy nie są tutaj srogie drogie, są bezcenne
 ale nie ujmujmy cechom gości
 
-[VERSE 2]
-już nie słyszę tego ulicznego ryku
-poprzez fale wegańskiego mleka, z wyjściem znowu zwlekam...
-jak wszyscy wiemy z doświadczenia, w naszych genach
-czekolada w płynie to niektórych mekka
+a teraz proszę wymieniamy to co mamy:
+etiopia, honduras, 
+energia, brawura
+kontrast, charakter i kultura, 
+to jest najlepsze kawomiejsce w mieście - 
+impostorom dobrej kofeiny nie wierz, 
+
+basta, krótko
 
 [CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
@@ -84,7 +78,12 @@ pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwól naszym meblom wypi�
 (jedna sprawa, latte art jest -
 
 
-
+alt:
+ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
+nowa paka oczy mu się błyszczą, 
+ręka w górę wężyk blast, zbija, plask, (trening budzi życia)
+jak ci powie będzie szczery, taki zakręcony drań
+robi oczy do kamery, on (to) wie  trening czyni (latte) mistrza
 
 choć bez wątpienia toniczki są najlepsze!
 
