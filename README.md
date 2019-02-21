@@ -4,6 +4,8 @@ Chciałbym żeby ekipa brismańska spisała najbardziej wiekopomne motywy Brisma
 
 https://www.youtube.com/watch?v=wiKgtOpj8XQ
 
+sad version: https://www.youtube.com/watch?v=JjH7GDd35XI
+
 brisman style
 
 aye
