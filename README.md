@@ -36,7 +36,7 @@ trening ten czyni jego latte mistrza,
 
 nic nie zrobisz, budzi życia
 
-czekaj co latte mistrza? 
+czekaj co, latte mistrza? 
 
 przecież lwy i konie, tworzą jak szalone, 
 naklejkami poświadczone, tunes'y z ziaren, pianek harem
@@ -55,6 +55,7 @@ jak wszyscy wiemy z doświadczenia, w naszych genach
 czekolada w płynie to niektórych mekka
 
 kiedy ender z sonią wpadną pędem w naszą bazę, 
+haracz, remus, vincent. losie
 odbywać się będą wieczne bitwy zazdrości, 
 wszystkie psy nie są tutaj srogie drogie, są bezcenne
 ale nie ujmujmy cechom gości
