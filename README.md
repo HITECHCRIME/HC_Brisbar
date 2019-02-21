@@ -47,18 +47,13 @@ przecież lwy i konie, tworzą jak szalone,
 naklejkami poświadczone, tunes'y z ziaren, pianek harem
 to postawi cię na nogi jaro jarosz
 to nie konkurencja która szasta pusto
+jaro w umysłach został
 
 brisman to ukryty unikat, kawy artysta
 osadzony w press press lej lej 
 chcąc tych marzeń, ciach
 (ganju zrób mi fat bass, narób dymu tu)
 craving_miracles, daga rządzi - a jakże
-
-już nie słyszę tego ulicznego ryku
-poprzez fale wegańskiego mleka, z wyjściem znowu zwlekam...
-jak wszyscy wiemy z doświadczenia, w naszych genach
-czekolada w płynie to niektórych mekka
-
 kiedy ender z sonią wpadną pędem w naszą bazę, 
 haracz, remus, vincent. losie
 odbywać się będą wieczne bitwy zazdrości, 
@@ -71,8 +66,8 @@ energia, brawura
 kontrast, charakter i kultura, 
 to jest najlepsze kawomiejsce w mieście - 
 impostorom dobrej kofeiny nie wierz, 
-
-basta, krótko
+brisbar, basta, krótko
+tu znajdziesz ukojenie
 
 [CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
