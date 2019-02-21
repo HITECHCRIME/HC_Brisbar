@@ -13,27 +13,47 @@ aye
 
 [CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień
-jak ganju coś jebnie to brisklasa nie może, (walnie) (briscrew)
+jak ganju coś walnie to brisklasa nie może, (walnie) (briscrew)
 legenda kasinsky bez trudu zaoże, 
 jak brisman na stole to przelew przez morze
 duchem tego baru ciociacaro, rap woman, rap shaman
-póki opłaszczeni klienci nie do końca pryśli (z brisbaru) ? 
-pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwól naszym meblom wypić drinki. turbo? milczę.) (dopić)
+póki opłaszczeni klienci nie do końca pryśli - z brisbaru 
+pozwól naszym meblom dopić drinki. turbo! (pozwólmy naszym meblom wyrazić swe drinki, turbo? milczę)
 
 [VERSE 1]
 jedziesz na ten bit hankozaur posłuchaj jej myśli
-że co? o co kaman, wchodzisz do podziemia, okno zapisane flamastrami (wchodzisz do brisbaru)
-czy to punk czy to bajzel, zamknij japę jesteś z nami (zamów kawę jesteś z nami)
+że co? o co kaman, wchodzisz do podziemia, okno zapisane flamastrami
+czy to punk czy to bajzel, zamów kawę jesteś z nami (zamknij japę jesteś z nami)
 swoje własne syny czy kuzyni to my wszyscy
 marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
 potem dzień jak co dzień, zamiatam podłogi
 zamykam ten bar kawowego przepychu
-(jedna sprawa, latte art jest)
+
 ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
-nowa paka oczy mu się błyszczą, on (to) wie najlepiej trening czyni (latte) mistrza 
+nowa paka oczy mu się błyszczą, on (to) wie  trening czyni (latte) mistrza 
 ręka w górę wężyk blast, zbija, plask, (ten trening budzi życia)
+jak ci powie będzie szczery, zakręcony drań robi oczy do kamery 
+
+alt:
+ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
+nowa paka oczy mu się błyszczą, 
+ręka w górę wężyk blast, zbija, plask, (trening budzi życia)
 jak ci powie będzie szczery, taki zakręcony drań
-robi oczy do kamery 
+robi oczy do kamery, on (to) wie  trening czyni (latte) mistrza
+
+czekaj co latte mistrza? przecież lwy i konie
+tworzą jak szalone, naklejkami poświadczone
+to nie jest konkurencja która szasta
+najlepsza kawa w mieście i basta
+
+chcąc tych marzeń, ciach
+(ganju zrób mi fat bass, narób dymu tu)
+craving_miracles, daga rządzi - a jakże
+kiedy ender z sonią wpadną pędem w naszą bazę, 
+odbywać się będą wieczne bitwy zazdrości, 
+wszystkie psy nie są tutaj srogie drogie, są bezcenne
+ale nie ujmujmy cechom gości
+
 [VERSE 2]
 już nie słyszę tego ulicznego ryku
 poprzez fale wegańskiego mleka, z wyjściem znowu zwlekam...
@@ -49,14 +69,9 @@ duchem tego baru ciociacaro, rap woman, rap shaman
 póki opłaszczeni klienci nie do końca pryśli (z brisbaru) ? 
 pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwól naszym meblom wypić drinki. turbo? milczę.)
 
+(jedna sprawa, latte art jest -
 
-chcąc tych marzeń, ciach
-(ganju zrób mi fat bass, narób dymu tu)
-craving_miracles, daga rządzi - a jakże
-kiedy ender z sonią wpadną pędem w naszą bazę, 
-odbywać się będą wieczne bitwy zazdrości, 
-wszystkie psy nie są tutaj srogie drogie, są bezcenne
-ale nie ujmujmy cechom gości
+
 
 
 choć bez wątpienia toniczki są najlepsze!
@@ -75,6 +90,10 @@ kontrast i kultura
 
 są i lwy i konie, menażeria różnorodności
 rzepki i 
+
+tunes'a z ziaren
+pianek harem
+to postawi ci na nogi
 
 
 
