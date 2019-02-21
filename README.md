@@ -25,18 +25,21 @@ swoje własne syny czy kuzyni to my wszyscy
 marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
 potem dzień jak co dzień, zamiatam podłogi
 zamykam ten bar kawowego przepychu
+
 ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
 nowa paka oczy mu się błyszczą, on to wie najlepiej trening czyni mistrza
 ręka w górę wężyk blast, zbija, plask
 jak ci powie będzie szczery drań, taki zakręcony
-robi oczy do kamery
-chcąc tych marzeń, craving_miracles, a jakże
+robi oczy do kamery, chcąc tych marzeń, 
+craving_miracles, daga rządzi a jakże
 kiedy ender z sonią wpadną, 
-odbywać swoje odwieczne bitwy
+odbywać wieczne zazdrości bitwy
 wszystkie psy nie są tutaj srogie drogie, są bezcenne
+
 już nie słyszę tego ulicznego ryku
 poprzez fale wegańskiego mleka, 
-jak wszyscy wiemy czekolada to niektórych mekka
+jak wszyscy wiemy z doświadczenia,
+czekolada w płynie dla niektórych mekka
 
 [CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
@@ -56,6 +59,8 @@ wszystkie psy nie są tutaj srogie drogie, są bezcenne
 już nie słyszę tego ulicznego ryku
 poprzez fale wegańskiego mleka 
 jak wszyscy wiemy czekolada to niektórych mekka
+
+
 
 
 
