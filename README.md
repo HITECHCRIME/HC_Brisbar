@@ -10,7 +10,7 @@ aye
 
 [CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
-jak ganju coś jebnie to brisklasa nie może, (walnie)
+jak ganju coś jebnie to brisklasa nie może, (walnie) (briscrew)
 legenda kasinsky bez trudu zaoże, 
 jak brisman na stole to przelew przez morze
 duchem tego baru ciociacaro, rap woman, rap shaman
@@ -19,7 +19,7 @@ pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwól naszym meblom wypi�
 
 [VERSE 1]
 jedziesz na ten bit hankozaur posłuchaj jej myśli
-że co? o co kaman, wchodzisz do brisbaru, okno zapisane flamastrami, 
+że co? o co kaman, wchodzisz do podziemia, okno zapisane flamastrami (wchodzisz do brisbaru)
 czy to punk czy to bajzel, zamknij japę jesteś z nami (zamów kawę jesteś z nami)
 swoje własne syny czy kuzyni to my wszyscy
 marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
@@ -43,10 +43,9 @@ pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwól naszym meblom wypi�
 
 [VERSE 2]
 już nie słyszę tego ulicznego ryku
-poprzez fale wegańskiego mleka 
+poprzez fale wegańskiego mleka, z wyjściem znowu zwlekam...
 jak wszyscy wiemy z doświadczenia,
 czekolada w płynie dla niektórych mekka
-z wyjściem znowu zwlekam...
 
 chcąc tych marzeń, ciach
 craving_miracles, daga rządzi a jakże
@@ -55,11 +54,14 @@ odbywać wieczne zazdrości bitwy
 wszystkie psy nie są tutaj srogie drogie, są bezcenne
 choć bez wątpienia toniczki są najlepsze!
 
+a teraz proszę wymieniamy to co mamy:
+etiopia, honduras, energia, brawura
 
 
 
 
 
+etiopia i kawy
 rzepka
 lwy i konie
 vegan - done
