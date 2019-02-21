@@ -4,20 +4,20 @@ Chciałbym żeby ekipa brismańska spisała najbardziej wiekopomne motywy Brisma
 
 https://www.youtube.com/watch?v=wiKgtOpj8XQ
 
-sad version: https://www.youtube.com/watch?v=JjH7GDd35XI
+sad version: https://www.youtube.com/watch?v=JjH7GDd35XI Instrumental Hip Hop " Dust Horizon " Boom Bap /// [ Hanto ]
 
 brisman style
 
 aye
 
 [CHORUS]
-travelling kitty, tfu ambrożanka tak ruda jak ogień 
+travelling kitty, tfu ambrożanka tak ruda jak ogień =
 jak ganju coś jebnie to brisklasa nie może, (walnie) (briscrew)
 legenda kasinsky bez trudu zaoże, 
 jak brisman na stole to przelew przez morze
 duchem tego baru ciociacaro, rap woman, rap shaman
 póki opłaszczeni klienci nie do końca pryśli (z brisbaru) ? 
-pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwól naszym meblom wypić drinki. turbo? milczę.)
+pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwól naszym meblom wypić drinki. turbo? milczę.) (dopić)
 
 [VERSE 1]
 jedziesz na ten bit hankozaur posłuchaj jej myśli
@@ -46,20 +46,23 @@ pozwólmy naszym meblom wyrazić swe drinki, turbo? (pozwól naszym meblom wypi�
 [VERSE 2]
 już nie słyszę tego ulicznego ryku
 poprzez fale wegańskiego mleka, z wyjściem znowu zwlekam...
-jak wszyscy wiemy z doświadczenia,
-czekolada w płynie dla niektórych mekka
+jak wszyscy wiemy z doświadczenia, w naszych genach
+czekolada w płynie to niektórych mekka
 
 chcąc tych marzeń, ciach
 craving_miracles, daga rządzi a jakże
 kiedy ender z sonią wpadną, 
-odbywać wieczne zazdrości bitwy
+odbywać wieczne zazdrości bitwy, 
 wszystkie psy nie są tutaj srogie drogie, są bezcenne
 choć bez wątpienia toniczki są najlepsze!
 
 a teraz proszę wymieniamy to co mamy:
 etiopia, honduras, 
 energia, brawura
-kontrast, x
+kontrast, kultura
+
+są i lwy i konie, menażeria różnorodności
+rzepki i 
 
 
 
