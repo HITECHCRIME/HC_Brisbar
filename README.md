@@ -11,7 +11,6 @@ brisman style
 
 aye 
 
-[CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień
 jak ganju coś walnie to brisklasa nie może, (jebnie) (briscrew)
 legenda kasinsky bez trudu zaoże, 
@@ -20,7 +19,6 @@ duchem tego baru ciociacaro, rap woman, rap shaman
 póki opłaszczeni klienci nie do końca pryśli - z brisbaru 
 pozwól naszym meblom dopić drinki. turbo! cascara! (pozwólmy naszym meblom wyrazić swe drinki, turbo? milczę)
 
-[VERSE]
 jedziesz na ten bit hankozaur posłuchaj jej myśli
 że co? o co kaman, wchodzisz do podziemia, okno zapisane flamastrami
 czy to punk czy to bajzel, zamów kawę jesteś z nami (zamknij japę jesteś z nami)
@@ -39,7 +37,8 @@ nic nie zrobisz, budzi życia
 już nie słyszę tego ulicznego ryku
 poprzez fale wegańskiego mleka, z wyjściem znowu zwlekam...
 jak wszyscy wiemy z doświadczenia, w naszych genach
-czekolada w płynie to niektórych mekka   
+czekolada w płynie to niektórych mekka (dla tych których mekka prysła)
+x
 
 czekaj co, latte mistrza? 
 
@@ -48,7 +47,6 @@ naklejkami poświadczone, tunes'y z ziaren, pianek harem
 to postawi cię na nogi jaro jarosz
 to nie konkurencja która szasta pusto
 jaro w umysłach został
-
 brisman to ukryty unikat, kawy artysta
 osadzony w press press lej lej 
 chcąc tych marzeń, ciach
@@ -67,7 +65,8 @@ kontrast, charakter i kultura,
 to jest najlepsze kawomiejsce w mieście - 
 impostorom dobrej kofeiny nie wierz, 
 brisbar, basta, krótko
-tu znajdziesz ukojenie
+tu znajdziesz ukojenie nawet jak będziesz musiał czuć to
+życie z nami, 
 
 [CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
