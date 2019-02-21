@@ -32,7 +32,9 @@ zamykam ten bar kawowego przepychu
 ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
 nowa paka oczy mu się błyszczą, ręka w górę, węgorz blast, zbija, plask, 
 zakręcony drań robi oczy do kamery - jak coś powie będzie szczery
-trening ten czyni jego latte mistrza, nic nie zrobisz, budzi życia
+trening ten czyni jego latte mistrza, 
+
+nic nie zrobisz, budzi życia
 
 czekaj co latte mistrza? 
 
@@ -41,7 +43,7 @@ naklejkami poświadczone, tunes'y z ziaren, pianek harem
 to postawi cię na nogi jaro jarosz
 to nie konkurencja która szasta pusto
 
-brisman to ukryty unikat, taki kawy artysta
+brisman to ukryty unikat, kawy artysta
 osadzony w press press lej lej 
 chcąc tych marzeń, ciach
 (ganju zrób mi fat bass, narób dymu tu)
