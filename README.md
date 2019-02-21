@@ -37,7 +37,7 @@ nic nie zrobisz, budzi życia
 już nie słyszę tego ulicznego ryku
 poprzez fale wegańskiego mleka, z wyjściem znowu zwlekam...
 jak wszyscy wiemy z doświadczenia, w naszych genach
-czekolada w płynie to niektórych mekka (dla tych których mekka prysła)
+czekolada w płynie to niektórych mekka (dla tych którym mekka prysła)
 x
 
 czekaj co, latte mistrza? 
@@ -66,7 +66,7 @@ to jest najlepsze kawomiejsce w mieście -
 impostorom dobrej kofeiny nie wierz, 
 brisbar, basta, krótko
 tu znajdziesz ukojenie nawet jak będziesz musiał czuć to
-życie z nami, 
+życie z nami, tutaj wszyscy się wspieramy ----- insert some trivia
 
 [CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
