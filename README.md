@@ -1,4 +1,4 @@
-# MOTHNODE_ Brisbar
+# Lekki Okultyzm_ Brisbar
 
 Chciałbym żeby ekipa brismańska spisała najbardziej wiekopomne motywy Brismańskie.
 
