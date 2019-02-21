@@ -1,4 +1,4 @@
-# HC_Brisbar
+# MOTHNODE_ Brisbar
 
 Chciałbym żeby ekipa brismańska spisała najbardziej wiekopomne motywy Brismańskie.
 
