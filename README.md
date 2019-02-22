@@ -116,7 +116,7 @@ zamykam ten bar kawowego przepychu
 
 x x x x
 brisbar, basta, krótko
-no i nara/halko (?)
+no i nara halko, do następnego/kolejnego łyku (?)
 
 
 
