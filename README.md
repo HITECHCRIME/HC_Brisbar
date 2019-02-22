@@ -11,6 +11,8 @@ brisman style
 
 aye 
 
+add prehook
+
 travelling kitty, tfu ambrożanka tak ruda jak ogień
 jak ganju coś walnie to brisklasa nie może, (jebnie) (briscrew)
 legenda kasinsky bez trudu zaoże, 
