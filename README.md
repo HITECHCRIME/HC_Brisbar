@@ -49,16 +49,19 @@ czekaj co, latte mistrza?
 
 przecież lwy i konie, tworzą jak szalone, 
 naklejkami (rzepki) poświadczone, magiel z ziaren, pianek harem -------- replace tunesy
-grosz postawi cię na nogi jaro jarosz to zawodnik ------------------------- do some variation here ? rzepka wespnie się na progi
+grosz postawi cię na nogi 
+jaro jarosz to zawodnik
+------------------------- do some variation here ? rzepka wespnie się na progi
 to nie konkurencja która szasta pusto
 jaro w umysłach usłał
+pewnie tez ma kawiarniane nałogi
 
 radiowęzeł leci pełną parą
 zgodnie dla natury rozwiąże problemy, nie kto inny ciociacaro
 kręci dla mikstury by dać wam to 
 dam poranne życie daj mi banknot
 
-toniczkowe ciasto
+toniczkowe ciasto zaprasza na 
 piernik w dymie to jest hardcore
 
 brisman kawy artysta to ukryty unikat, 
@@ -82,6 +85,8 @@ impostorom dobrej kofeiny nie wierz,
 brisbar, basta, krótko
 tu znajdziesz ukojenie nawet jak będziesz musiał czuć to
 życie z nami, tutaj wszyscy się wspieramy ----- insert some trivia
+
+barista, no nie sądzę, to jest brisman co ty myślisz
 
 teraz mają rogi jak szatany, ale
 wiosną pójdą w liści tany, specjalnie by poprawić nastroj hany
