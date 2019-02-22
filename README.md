@@ -52,17 +52,19 @@ naklejkami (rzepki) poświadczone, magiel z ziaren, pianek harem -------- replac
 grosz postawi cię na nogi 
 jaro jarosz to zawodnik
 ------------------------- do some variation here ? rzepka wespnie się na progi
-to nie konkurencja która szasta pusto
 jaro w umysłach usłał
-pewnie tez ma kawiarniane nałogi
-
+tez ma kawiarniane nałogi
+x
+x
 radiowęzeł leci pełną parą
 zgodnie dla natury rozwiąże problemy, nie kto inny ciociacaro
 kręci dla mikstury by dać wam to 
 dam poranne życie daj mi banknot
 
-toniczkowe ciasto zaprasza na 
-piernik w dymie to jest hardcore
+jesienne platany
+teraz mają rogi jak szatany, ale
+wiosną pójdą w liści tany, odrodzą swoje drogi
+specjalnie by poprawić nastroj hany
 
 brisman kawy artysta to ukryty unikat, 
 osadzony w press press lej lej 
@@ -71,25 +73,31 @@ chcąc tych marzeń, ciach
 craving_miracles, daga rządzi - a jakże
 kiedy ender z sonią wpadną pędem w naszą bazę, 
 haracz, remus, vincent. losie
-menażeria różnorodności
+daj pokłapać soni bedzie ci oddana
+menażeria różnorodności, 
 odbywać się będą wieczne bitwy zazdrości, 
 wszystkie psy nie są tutaj srogie drogie, są bezcenne
 ale nie ujmujmy cechom gości
 
 a teraz proszę wymieniamy to co mamy:
-etiopia, honduras, 
-energia, brawura
+etiopia, honduras, energia, brawura
 kontrast, charakter i kultura, 
 to jest najlepsze kawomiejsce w mieście - 
 impostorom dobrej kofeiny nie wierz, 
-brisbar, basta, krótko
-tu znajdziesz ukojenie nawet jak będziesz musiał czuć to
-życie z nami, tutaj wszyscy się wspieramy ----- insert some trivia
-
+tutaj znajdziesz ukojenie nawet jak będziesz musiał czuć to
+życie z nami, tutaj wszyscy się wspieramy
 barista, no nie sądzę, to jest brisman co ty myślisz
+michu ci pomoże nawet w książce 
+to nie konkurencja która szasta pusto
 
-teraz mają rogi jak szatany, ale
-wiosną pójdą w liści tany, specjalnie by poprawić nastroj hany
+ ----- insert some trivia
+
+
+
+toniczkowe ciasto zaprasza na 
+piernik w dymie to jest hardcore
+
+
 
 travelling kitty, tfu ambrożanka tak ruda jak ogień
 jak ganju coś walnie to brisklasa nie może, (jebnie) (briscrew)
@@ -99,7 +107,10 @@ duchem tego baru ciociacaro, rap woman, rap shaman
 póki opłaszczeni klienci nie do końca pryśli - z brisbaru --------- klienci break it breaks kinda replace? ---- oplaszczeni, milczacy?
 pozwól naszym meblom dopić drinki. turbo! cascara! (pozwólmy naszym meblom wyrazić swe drinki, turbo? milczę)
 
-
+barista, no nie sądzę, to jest brisman co ty myślisz
+michu ci pomoże nawet w książce 
+brisbar, basta, krótko, xxx
+nara
 
 ---------------------------
 
