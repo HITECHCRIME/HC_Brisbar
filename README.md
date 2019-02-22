@@ -48,10 +48,16 @@ halko halkooo
 czekaj co, latte mistrza? 
 
 przecież lwy i konie, tworzą jak szalone, 
-naklejkami poświadczone, tunes'y z ziaren, pianek harem -------- replace tunesy
-grosz postawi cię na nogi jaro jarosz ------------------------- do some variation here
+naklejkami (rzepki) poświadczone, tunes'y z ziaren, pianek harem -------- replace tunesy
+grosz postawi cię na nogi jaro jarosz ------------------------- do some variation here ? rzepka wespnie się na progi
 to nie konkurencja która szasta pusto
-jaro w umysłach został
+jaro w umysłach usłał
+
+radiowęzeł leci pełną parą
+zgodnie dla natury rozwiąże problemy, nie kto inny ciociacaro
+kręci dla mikstury by dać wam to 
+dam poranne życie daj mi banknot
+
 brisman kawy artysta to ukryty unikat, 
 osadzony w press press lej lej 
 chcąc tych marzeń, ciach
@@ -101,6 +107,7 @@ kontrast, charakter i kultura,
 brisman to ukryty unikat, taki kawy artysta
 osadzony w press press lej lej 
 
+
 a teraz proszę wymieniamy to co mamy:
 etiopia, honduras, 
 energia i brawura
@@ -109,13 +116,14 @@ kontrast i kultura
 są i lwy i konie, menażeria różnorodności
 rzepki i 
 
+teraz mają rogi jak szatany, ale
+wiosną pójdą w liści tany, specjalnie by poprawić nastroj hany
 
 
 
-
-etiopia i kawy
+etiopia i kawy - done
 rzepka
-lwy i konie
+lwy i konie - done
 vegan - done
 ganju rwootboi - done
 hankozaur - done
