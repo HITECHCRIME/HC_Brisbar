@@ -29,12 +29,14 @@ marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
 potem dzień jak co dzień, zamiatam podłogi
 zamykam ten bar kawowego przepychu ----------------------- make it in beat add word
 
+------ ojciec off beat start /// 
 ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
 nowa paka oczy mu się błyszczą, ręka w górę, węgorz blast, zbija, plask, 
 zakręcony drań robi oczy do kamery - jak coś powie będzie szczery
 trening ten czyni jego latte mistrza,  -------------------- different pacing
 
-nic nie zrobisz, budzi życia
+nic nie zrobisz - jego kawa
+budzi życia
 
 już nie słyszę tego ulicznego ryku
 poprzez fale wegańskiego mleka, z wyjściem znowu zwlekam...
@@ -42,15 +44,15 @@ jak wszyscy wiemy z doświadczenia, w naszych genach
 czekolada w płynie to niektórych mekka 
 lub (dla tych którym mekka prysła)
 x
-
+halko halkooo
 czekaj co, latte mistrza? 
 
 przecież lwy i konie, tworzą jak szalone, 
 naklejkami poświadczone, tunes'y z ziaren, pianek harem -------- replace tunesy
-to postawi cię na nogi jaro jarosz ------------------------- do some variation here
+grosz postawi cię na nogi jaro jarosz ------------------------- do some variation here
 to nie konkurencja która szasta pusto
 jaro w umysłach został
-brisman to ukryty unikat, kawy artysta
+brisman kawy artysta to ukryty unikat, 
 osadzony w press press lej lej 
 chcąc tych marzeń, ciach
 (ganju zrób mi fat bass, narób dymu tu)
