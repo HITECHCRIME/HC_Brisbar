@@ -25,12 +25,12 @@ czy to punk czy to bajzel, zamów kawę jesteś z nami (zamknij japę jesteś 
 swoje własne syny czy kuzyni to my wszyscy
 marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
 potem dzień jak co dzień, zamiatam podłogi
-zamykam ten bar kawowego przepychu
+zamykam ten bar kawowego przepychu ----------------------- make it in beat add word
 
 ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
 nowa paka oczy mu się błyszczą, ręka w górę, węgorz blast, zbija, plask, 
 zakręcony drań robi oczy do kamery - jak coś powie będzie szczery
-trening ten czyni jego latte mistrza, 
+trening ten czyni jego latte mistrza,  -------------------- different pacing
 
 nic nie zrobisz, budzi życia
 
@@ -45,7 +45,7 @@ czekaj co, latte mistrza?
 
 przecież lwy i konie, tworzą jak szalone, 
 naklejkami poświadczone, tunes'y z ziaren, pianek harem
-to postawi cię na nogi jaro jarosz
+to postawi cię na nogi jaro jarosz ------------------------- do some variation here
 to nie konkurencja która szasta pusto
 jaro w umysłach został
 brisman to ukryty unikat, kawy artysta
