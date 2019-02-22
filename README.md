@@ -95,6 +95,7 @@ tutaj znajdziesz ukojenie nawet jak będziesz musiał czuć to
 życie z nami, tutaj razem się wspieramy ----- insert some trivia
 barista, no nie sądzę, to jest brisman co ty myślisz 
 michu ci pomoże nawet w książce 
+
 to nie konkurencja która szasta pusto
 
 toniczkowe ciasto zaprasza na 
@@ -116,7 +117,7 @@ zamykam ten bar kawowego przepychu
 
 x x x x
 brisbar, basta, krótko
-no i nara halko, do następnego/kolejnego łyku (?)
+no i nara halko, do kolejnego łyku (?)
 
 
 
