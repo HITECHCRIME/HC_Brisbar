@@ -58,6 +58,9 @@ zgodnie dla natury rozwiąże problemy, nie kto inny ciociacaro
 kręci dla mikstury by dać wam to 
 dam poranne życie daj mi banknot
 
+toniczkowe ciasto
+piernik w dymie to jest hardcore
+
 brisman kawy artysta to ukryty unikat, 
 osadzony w press press lej lej 
 chcąc tych marzeń, ciach
