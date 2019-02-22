@@ -30,7 +30,7 @@ czy to punk czy to bajzel, zamów kawę jesteś z nami (zamknij japę jesteś 
 swoje własne syny czy kuzyni to my wszyscy
 marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
 potem dzień jak co dzień, zamiatam podłogi
-zamykam ten bar kawowego przepychu ----------------------- make it in beat add word
+otwieram/zamykam ten bar kawowego przepychu ----------------------- make it in beat add word
 
 ------ ojciec off beat start /// 
 ojciec założyciel gaca, gacakawiarnista 
@@ -88,24 +88,19 @@ ale nie ujmujmy cechom gości
 
 a teraz proszę wymieniamy to co mamy:
 etiopia, honduras, energia, brawura
-kontrast, charakter i kultura, 
+charakter i kultura, 
 to jest najlepsze kawomiejsce w mieście - 
-impostorom dobrej kofeiny nie wierz, 
+impostorom dobrej kofeiny nie wierz, to jest kontrast
 tutaj znajdziesz ukojenie nawet jak będziesz musiał czuć to
-życie z nami, tutaj wszyscy się wspieramy
+życie z nami, tutaj wszyscy się wspieramy ----- insert some trivia
 barista, no nie sądzę, to jest brisman co ty myślisz
 michu ci pomoże nawet w książce 
 to nie konkurencja która szasta pusto
 
- ----- insert some trivia
-
-
-
 toniczkowe ciasto zaprasza na 
 piernik w dymie to jest hardcore
 
-
-
+[CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień
 jak ganju coś walnie to brisklasa nie może, (jebnie) (briscrew)
 legenda kasinsky bez trudu zaoże, 
@@ -114,10 +109,16 @@ duchem tego baru ciociacaro, rap woman, rap shaman
 póki opłaszczeni klienci nie do końca pryśli - z brisbaru --------- klienci break it breaks kinda replace? ---- oplaszczeni, milczacy?
 pozwól naszym meblom dopić drinki. turbo! cascara! (pozwólmy naszym meblom wyrazić swe drinki, turbo? milczę)
 
-barista, no nie sądzę, to jest brisman co ty myślisz
-michu ci pomoże nawet w książce 
-brisbar, basta, krótko, xxx
-nara
+swoje własne syny czy kuzyni to my wszyscy
+marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
+potem dzień jak co dzień, zamiatam podłogi
+zamykam ten bar kawowego przepychu
+
+x x x x
+brisbar, basta, krótko
+no i nara/halko (?)
+
+
 
 ---------------------------
 
@@ -145,7 +146,7 @@ choć bez wątpienia toniczki są najlepsze!
 
 
 etiopia i kawy - done
-rzepka
+rzepka - done
 lwy i konie - done
 vegan - done
 ganju rwootboi - done
@@ -158,4 +159,5 @@ toniczki mikuś
 toniczki 2
 marzia (nervosol997) - done
 syny - done
+baton - 
 
