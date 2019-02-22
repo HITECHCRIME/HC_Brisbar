@@ -17,30 +17,33 @@ add prehook
 
 travelling kitty, tfu ambrożanka tak ruda jak ogień
 jak ganju coś walnie to brisklasa nie może, (jebnie) (briscrew)
-legenda kasinsky bez trudu zaoże, 
-jak brisman na stole to przelew przez morze
+legenda kasinsky bez trudu zaoże, jak brisman na stole to przelew przez morze
 duchem tego baru ciociacaro, rap woman, rap shaman
-póki opłaszczeni klienci nie do końca pryśli - z brisbaru --------- klienci break it breaks kinda replace? ---- oplaszczeni, milczacy?
+póki opłaszczeni klienci nie do końca pryśli - z brisbaru (smh different than brisbaru rhyming with baru)
+--------- klienci break it breaks kinda replace? ---- oplaszczeni, milczacy?
 pozwól naszym meblom dopić drinki. turbo! cascara! (pozwólmy naszym meblom wyrazić swe drinki, turbo? milczę)
 
 jedziesz na ten bit hankozaur posłuchaj jej myśli
 że co? o co kaman, wchodzisz do podziemia, okno zapisane flamastrami
 czy to punk czy to bajzel, zamów kawę jesteś z nami (zamknij japę jesteś z nami) ---------- downward ending
+
 swoje własne syny czy kuzyni to my wszyscy
 marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
 potem dzień jak co dzień, zamiatam podłogi
 zamykam ten bar kawowego przepychu ----------------------- make it in beat add word
 
 ------ ojciec off beat start /// 
-ojciec założyciel gaca, gacakawiarnista kiedy wchodzi
-nowa paka oczy mu się błyszczą, ręka w górę, węgorz blast, zbija, plask, 
-zakręcony drań robi oczy do kamery - jak coś powie będzie szczery
+ojciec założyciel gaca, gacakawiarnista 
+kiedy wchodzi nowa paka oczy mu się błyszczą, 
+ręka w górę, węgorz blast, zbija, plask, 
+zakręcony drań robi oczy do kamery
+jak coś powie będzie szczery,
 trening ten czyni jego latte mistrza,  -------------------- different pacing
 
 nic nie zrobisz - jego kawa
 budzi życia
 
-już nie słyszę tego ulicznego ryku
+już nie słyszę tego ulicznego ryku 
 poprzez fale wegańskiego mleka, z wyjściem znowu zwlekam...
 jak wszyscy wiemy z doświadczenia, w naszych genach
 czekolada w płynie to niektórych mekka 
@@ -52,10 +55,11 @@ czekaj co, latte mistrza?
 przecież lwy i konie, tworzą jak szalone, 
 naklejkami (rzepki) poświadczone, magiel z ziaren, pianek harem -------- replace tunesy
 grosz postawi cię na nogi 
-jaro jarosz to zawodnik
+jaro jarosz to zawoooodnik
 ------------------------- do some variation here ? rzepka wespnie się na progi
 jaro w umysłach usłał
 tez ma kawiarniane nałogi
+pewnie ma stempel na własność
 x
 x
 radiowęzeł leci pełną parą
@@ -63,13 +67,14 @@ zgodnie dla natury rozwiąże problemy, nie kto inny ciociacaro
 kręci dla mikstury by dać wam to 
 dam poranne życie daj mi banknot
 
-jesienne platany
-teraz mają rogi jak szatany, ale
-wiosną pójdą w liści tany, odrodzą swoje drogi
-specjalnie by poprawić nastroj hany
+jesienne platany mają rogi jak szatany, 
+ale wiosną pójdą zaraz w liści tany
+by poprawić nastroj hany (by dać szczęście hanie)
+odrodzą swoje drogi, dadzą szczęście
 
 brisman kawy artysta to ukryty unikat, 
 osadzony w press press lej lej 
+wchodzisz tu i masz dystans
 chcąc tych marzeń, ciach
 (ganju zrób mi fat bass, narób dymu tu)
 craving_miracles, daga rządzi - a jakże
