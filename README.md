@@ -46,7 +46,7 @@ x
 czekaj co, latte mistrza? 
 
 przecież lwy i konie, tworzą jak szalone, 
-naklejkami poświadczone, tunes'y z ziaren, pianek harem
+naklejkami poświadczone, tunes'y z ziaren, pianek harem -------- replace tunesy
 to postawi cię na nogi jaro jarosz ------------------------- do some variation here
 to nie konkurencja która szasta pusto
 jaro w umysłach został
