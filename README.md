@@ -35,7 +35,7 @@ otwieram/zamykam ten bar kawowego przepychu ----------------------- make it in b
 ------ ojciec off beat start /// 
 ojciec założyciel gaca, gacakawiarnista 
 kiedy wchodzi nowa paka oczy mu się błyszczą, 
-ręka w górę, węgorz blast, zbija, plask, 
+ręka w górę, węgosz blast, zbija, plask, 
 zakręcony drań robi oczy do kamery
 jak coś powie będzie szczery,
 trening ten czyni jego latte mistrza,  -------------------- different pacing
@@ -55,11 +55,11 @@ czekaj co, latte mistrza?
 przecież lwy i konie, tworzą jak szalone, 
 naklejkami (rzepki) poświadczone, magiel z ziaren, pianek harem -------- replace tunesy
 grosz postawi cię na nogi 
+tez ma kawiarniane nałogi
+pewnie stempel ma na własność
 jaro jarosz to zawoooodnik
 ------------------------- do some variation here ? rzepka wespnie się na progi
 jaro w umysłach usłał
-tez ma kawiarniane nałogi
-pewnie ma stempel na własność
 x
 x
 radiowęzeł leci pełną parą
@@ -68,7 +68,7 @@ kręci dla mikstury by dać wam to
 dam poranne życie daj mi banknot
 
 jesienne platany mają rogi jak szatany, 
-ale wiosną pójdą zaraz w liści tany
+ale wiosną pójdą zaraz w liści tany ----- wiją (wengosz)
 by poprawić nastroj hany (by dać szczęście hanie)
 odrodzą swoje drogi, dadzą szczęście
 
