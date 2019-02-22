@@ -48,8 +48,8 @@ halko halkooo
 czekaj co, latte mistrza? 
 
 przecież lwy i konie, tworzą jak szalone, 
-naklejkami (rzepki) poświadczone, tunes'y z ziaren, pianek harem -------- replace tunesy
-grosz postawi cię na nogi jaro jarosz ------------------------- do some variation here ? rzepka wespnie się na progi
+naklejkami (rzepki) poświadczone, magiel z ziaren, pianek harem -------- replace tunesy
+grosz postawi cię na nogi jaro jarosz to zawodnik ------------------------- do some variation here ? rzepka wespnie się na progi
 to nie konkurencja która szasta pusto
 jaro w umysłach usłał
 
@@ -68,6 +68,7 @@ chcąc tych marzeń, ciach
 craving_miracles, daga rządzi - a jakże
 kiedy ender z sonią wpadną pędem w naszą bazę, 
 haracz, remus, vincent. losie
+menażeria różnorodności
 odbywać się będą wieczne bitwy zazdrości, 
 wszystkie psy nie są tutaj srogie drogie, są bezcenne
 ale nie ujmujmy cechom gości
@@ -81,6 +82,21 @@ impostorom dobrej kofeiny nie wierz,
 brisbar, basta, krótko
 tu znajdziesz ukojenie nawet jak będziesz musiał czuć to
 życie z nami, tutaj wszyscy się wspieramy ----- insert some trivia
+
+teraz mają rogi jak szatany, ale
+wiosną pójdą w liści tany, specjalnie by poprawić nastroj hany
+
+travelling kitty, tfu ambrożanka tak ruda jak ogień
+jak ganju coś walnie to brisklasa nie może, (jebnie) (briscrew)
+legenda kasinsky bez trudu zaoże, 
+jak brisman na stole to przelew przez morze
+duchem tego baru ciociacaro, rap woman, rap shaman
+póki opłaszczeni klienci nie do końca pryśli - z brisbaru --------- klienci break it breaks kinda replace? ---- oplaszczeni, milczacy?
+pozwól naszym meblom dopić drinki. turbo! cascara! (pozwólmy naszym meblom wyrazić swe drinki, turbo? milczę)
+
+
+
+---------------------------
 
 [CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
@@ -102,25 +118,6 @@ jak ci powie będzie szczery, taki zakręcony drań
 robi oczy do kamery, on (to) wie  trening czyni (latte) mistrza
 
 choć bez wątpienia toniczki są najlepsze!
-
-a teraz proszę wymieniamy to co mamy:
-etiopia, honduras, 
-energia, brawura
-kontrast, charakter i kultura, 
-brisman to ukryty unikat, taki kawy artysta
-osadzony w press press lej lej 
-
-
-a teraz proszę wymieniamy to co mamy:
-etiopia, honduras, 
-energia i brawura
-kontrast i kultura
-
-są i lwy i konie, menażeria różnorodności
-rzepki i 
-
-teraz mają rogi jak szatany, ale
-wiosną pójdą w liści tany, specjalnie by poprawić nastroj hany
 
 
 
