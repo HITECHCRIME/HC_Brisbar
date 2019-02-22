@@ -83,7 +83,7 @@ haracz, remus, vincent. losie
 daj pokłapać soni bedzie ci oddana
 menażeria różnorodności, 
 odbywać się będą wieczne bitwy zazdrości, 
-wszystkie psy nie są tutaj srogie drogie, są bezcenne
+psy nie są tutaj srogie drogie, są bezcenne
 ale nie ujmujmy cechom gości
 
 a teraz proszę wymieniamy to co mamy:
@@ -92,8 +92,8 @@ charakter i kultura,
 to jest najlepsze kawomiejsce w mieście - 
 impostorom dobrej kofeiny nie wierz, to jest kontrast
 tutaj znajdziesz ukojenie nawet jak będziesz musiał czuć to
-życie z nami, tutaj wszyscy się wspieramy ----- insert some trivia
-barista, no nie sądzę, to jest brisman co ty myślisz
+życie z nami, tutaj razem się wspieramy ----- insert some trivia
+barista, no nie sądzę, to jest brisman co ty myślisz 
 michu ci pomoże nawet w książce 
 to nie konkurencja która szasta pusto
 
