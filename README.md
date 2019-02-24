@@ -123,6 +123,8 @@ no i nara halko, do kolejnego łyku (?)
 
 ---------------------------
 
+Additional lyric ideas:
+
 [CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień 
 jak ganju coś jebnie to brisklasa nie może, (walnie)
