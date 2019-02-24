@@ -1,4 +1,4 @@
-# Lekki Okultyzm_ Brisbar
+# Lekki Okultyzm_ Brisdom
 
 Chciałbym żeby ekipa brismańska spisała najbardziej wiekopomne motywy Brismańskie.
 
