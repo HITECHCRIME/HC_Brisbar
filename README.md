@@ -101,7 +101,7 @@ michu ci pomoże nawet w książce
 to cafe nie szasta pustym ziarnem pusto
 
 toniczkowe ciasto zaprasza na 
-piernik w dymie to jest hardcore
+piernik w dymie to jest hardcore...
 
 [CHORUS]
 travelling kitty, tfu ambrożanka tak ruda jak ogień
