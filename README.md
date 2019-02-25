@@ -58,7 +58,7 @@ naklejkami (rzepki) poświadczone, magiel z ziaren, pianek harem -------- replac
 grosz postawi cię na nogi 
 tez ma kawiarniane nałogi
 pewnie stempel ma na własność
-jaro jarosz to nie konkurencja 
+jaro jarosz to nie konkurencja która szasta pusto
 - to zawoooodnik
 ------------------------- do some variation here ? rzepka wespnie się na progi
 jaro w umysłach usłał
@@ -71,8 +71,10 @@ dam poranne życie daj mi banknot
 
 jesienne platany mają rogi jak szatany, 
 ale wiosną pójdą zaraz w liści tany ----- wiją (wengosz)
-by poprawić nastroj hany (by dać szczęście hanie)
-odrodzą swoje drogi, dadzą szczęście
+by poprawić nastroj hany 
+
+------(by dać szczęście hanie)
+------odrodzą swoje drogi, dadzą szczęście
 
 brisman kawy artysta to ukryty unikat, 
 osadzony w press press lej lej 
@@ -90,7 +92,7 @@ ale nie ujmujmy cechom gości
 
 a teraz proszę wymieniamy to co mamy:
 etiopia, honduras, energia, brawura
-charakter i kultura, 
+charakter i kultura, gwatemala, kostaryka, burundi, chemex
 to jest najlepsze kawomiejsce w mieście - 
 impostorom dobrej kofeiny nie wierz, to jest kontrast
 tutaj znajdziesz ukojenie nawet jak będziesz musiał czuć to
@@ -120,8 +122,8 @@ potem dzień jak co dzień, zamiatam podłogi
 zamykam ten bar kawowego przepychu)
 
 x x x x
-brisbar, basta, krótko
-no i nara halko, widzimy się jutro 
+brisbar, basta, krótko, 
+no i nara, przecież widzimy się jutro (nie mówimy nara?)
 do kolejnego łyku (?)
 
 
