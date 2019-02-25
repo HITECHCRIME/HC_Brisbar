@@ -111,6 +111,8 @@ duchem tego baru ciociacaro, rap woman, rap shaman
 póki opłaszczeni klienci nie do końca pryśli - z brisbaru --------- klienci break it breaks kinda replace? ---- oplaszczeni, milczacy?
 pozwól naszym meblom dopić drinki. turbo! cascara! (pozwólmy naszym meblom wyrazić swe drinki, turbo? milczę)
 
+turbo cascara
+
 swoje własne syny czy kuzyni to my wszyscy
 marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
 potem dzień jak co dzień, zamiatam podłogi
