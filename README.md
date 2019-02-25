@@ -125,7 +125,7 @@ x x x x
 brisbar, basta, krótko, 
 no i nara, przecież widzimy się jutro (nie mówimy nara?)
 do kolejnego łyku (?)
-
+ 
 
 
 ---------------------------
