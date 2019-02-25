@@ -58,7 +58,8 @@ naklejkami (rzepki) poświadczone, magiel z ziaren, pianek harem -------- replac
 grosz postawi cię na nogi 
 tez ma kawiarniane nałogi
 pewnie stempel ma na własność
-jaro jarosz to zawoooodnik
+jaro jarosz to nie konkurencja 
+- to zawoooodnik
 ------------------------- do some variation here ? rzepka wespnie się na progi
 jaro w umysłach usłał
 x
@@ -75,7 +76,7 @@ odrodzą swoje drogi, dadzą szczęście
 
 brisman kawy artysta to ukryty unikat, 
 osadzony w press press lej lej 
-wchodzisz tu i masz dystans
+wchodzisz tu masz dystans
 chcąc tych marzeń, ciach
 (ganju zrób mi fat bass, narób dymu tu)
 craving_miracles, daga rządzi - a jakże
@@ -97,7 +98,7 @@ tutaj znajdziesz ukojenie nawet jak będziesz musiał czuć to
 barista, no nie sądzę, to jest brisman co ty myślisz 
 michu ci pomoże nawet w książce 
 
-to nie konkurencja która szasta pusto
+to cafe nie szasta pustym ziarnem pusto
 
 toniczkowe ciasto zaprasza na 
 piernik w dymie to jest hardcore
@@ -113,14 +114,15 @@ pozwól naszym meblom dopić drinki. turbo! cascara! (pozwólmy naszym meblom wy
 
 turbo cascara
 
-swoje własne syny czy kuzyni to my wszyscy
+(swoje własne syny czy kuzyni to my wszyscy
 marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
 potem dzień jak co dzień, zamiatam podłogi
-zamykam ten bar kawowego przepychu
+zamykam ten bar kawowego przepychu)
 
 x x x x
 brisbar, basta, krótko
-no i nara halko, do kolejnego łyku (?)
+no i nara halko, widzimy się jutro 
+do kolejnego łyku (?)
 
 
 
