@@ -123,7 +123,7 @@ zamykam ten bar kawowego przepychu)
 
 x x x x
 brisbar, basta, krótko, 
-nie mówimy nara, przecież widzimy się jutro (no i nara)
+nie mówimy nara, przecież widzimy się jutro (no i nara) ------ (przecież would be a repetition in case of lwy i konie earlier in the song)
 do kolejnego łyku ---- what to do with this little beauty
  
 
