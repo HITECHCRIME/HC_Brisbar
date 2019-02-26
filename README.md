@@ -5,8 +5,12 @@ Designed to sing with the crowd!
 
 https://www.youtube.com/watch?v=wiKgtOpj8XQ
 
+do 2 versions? not sure but will give a try
+
 sad version: https://www.youtube.com/watch?v=JjH7GDd35XI Instrumental Hip Hop " Dust Horizon " Boom Bap /// [ Hanto ]
 groove version: https://www.youtube.com/watch?v=uf4R4xCacJQ
+
+
 
 brisman style
 
