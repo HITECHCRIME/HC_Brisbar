@@ -22,7 +22,7 @@ travelling kitty, tfu ambrożanka tak ruda jak ogień
 jak ganju coś walnie to brisklasa nie może, (jebnie) (briscrew)
 legenda kasinsky bez trudu zaoże, jak brisman na stole to przelew przez morze
 duchem tego baru ciociacaro, rap woman, rap shaman
-póki opłaszczeni klienci nie do końca pryśli - z brisbaru (smh different than brisbaru rhyming with baru)
+póki opłaszczeni klienci nie do końca pryśli - z brisbaru (smh different than brisbaru rhyming with baru) (klienci nie do końca wyszli?)
 --------- klienci break it breaks kinda replace? ---- oplaszczeni, milczacy?
 pozwól naszym meblom dopić drinki. turbo! cascara! (pozwólmy naszym meblom wyrazić swe drinki, turbo? milczę)
 
