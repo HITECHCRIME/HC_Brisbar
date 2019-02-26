@@ -91,7 +91,7 @@ daj pokłapać soni bedzie ci oddana
 odbywać się będą wieczne bitwy zazdrości, 
 menażeria różnorodności, 
 llamy i alpaki operuja chemex z wysokosci, dobrze radzą,
-psy nie są tutaj srogie, lecz drogie, są bezcenne
+psy nie są tutaj srogie, lecz nam drogie, są bezcenne
 ale nie ujmujmy cechom gości
 
 a teraz proszę wymieniamy to co mamy:
@@ -157,7 +157,10 @@ robi oczy do kamery, on (to) wie  trening czyni (latte) mistrza
 
 choć bez wątpienia toniczki są najlepsze!
 
-
+toniczki mikuś 
+toniczki 2
+baton - 
+brismańskie krzyżówki -
 
 etiopia i kawy - done
 rzepka - done
@@ -169,9 +172,6 @@ gaca kawiarnista - done
 dagmara (craving miracles) - done
 sonia ender - done
 okno zapisane flamastrami - done
-toniczki mikuś 
-toniczki 2
 marzia (nervosol997) - done
 syny - done
-baton - 
-brismańskie krzyżówki -
+
