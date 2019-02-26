@@ -123,8 +123,8 @@ zamykam ten bar kawowego przepychu)
 
 x x x x
 brisbar, basta, krótko, 
-nie mówimy nara, przecież widzimy się jutro (?) (no i nara)
-do kolejnego łyku (?)
+nie mówimy nara, przecież widzimy się jutro (no i nara)
+do kolejnego łyku ---- what to do with this little beauty
  
 
 
