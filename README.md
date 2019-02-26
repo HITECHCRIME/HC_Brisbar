@@ -1,7 +1,6 @@
 # Lekki Okultyzm_ Brisdom
 
 Chciałbym żeby ekipa brismańska spisała najbardziej wiekopomne motywy Brismańskie.
-
 Designed to sing with the crowd!
 
 https://www.youtube.com/watch?v=wiKgtOpj8XQ
@@ -85,9 +84,10 @@ craving_miracles, daga rządzi - a jakże
 kiedy ender z sonią wpadną pędem w naszą bazę, 
 haracz, remus, vincent. losie
 daj pokłapać soni bedzie ci oddana
-menażeria różnorodności, 
 odbywać się będą wieczne bitwy zazdrości, 
-psy nie są tutaj srogie drogie, są bezcenne
+menażeria różnorodności, 
+llamy i alpaki operuja chemex z wysokosci, dobrze radzą,
+psy nie są tutaj srogie, lecz drogie, są bezcenne
 ale nie ujmujmy cechom gości
 
 a teraz proszę wymieniamy to co mamy:
@@ -171,4 +171,3 @@ marzia (nervosol997) - done
 syny - done
 baton - 
 brismańskie krzyżówki -
-llamy i alpaki operuja chemex z wysokosci
