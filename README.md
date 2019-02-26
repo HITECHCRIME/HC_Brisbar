@@ -64,9 +64,10 @@ pewnie stempel ma na własność
 jaro jarosz to nie konkurencja która szasta pusto
 - to zawoooodnik
 ------------------------- do some variation here ? rzepka wespnie się na progi
-jaro w umysłach usłał
+jaro w umysłach usłał (?)
 x
 x
+
 radiowęzeł leci pełną parą
 zgodnie dla natury rozwiąże problemy, nie kto inny ciociacaro
 kręci dla mikstury by dać wam to 
