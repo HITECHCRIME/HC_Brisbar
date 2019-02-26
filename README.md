@@ -31,7 +31,7 @@ jedziesz na ten bit hankozaur posłuchaj jej myśli
 czy to punk czy to bajzel, zamów kawę jesteś z nami (zamknij japę jesteś z nami) ---------- downward ending
 
 swoje własne syny czy kuzyni to my wszyscy
-marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
+marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku (robi?)
 potem dzień jak co dzień, zamiatam podłogi
 otwieram/zamykam ten bar kawowego przepychu ----------------------- make it in beat add word
 
