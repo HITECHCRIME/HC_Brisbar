@@ -123,7 +123,7 @@ zamykam ten bar kawowego przepychu)
 
 x x x x
 brisbar, basta, krótko, 
-no i nara, przecież widzimy się jutro (nie mówimy nara?)
+nie mówimy nara, przecież widzimy się jutro (?) (no i nara)
 do kolejnego łyku (?)
  
 
