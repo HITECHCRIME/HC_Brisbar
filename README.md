@@ -50,6 +50,7 @@ już nie słyszę tego ulicznego ryku
 poprzez fale wegańskiego mleka, z wyjściem znowu zwlekam...
 jak wszyscy wiemy z doświadczenia, w naszych genach
 czekolada w płynie - to niektórych mekka 
+
 lub (dla tych którym mekka prysła)
 
 x
