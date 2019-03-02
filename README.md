@@ -17,7 +17,7 @@ brisman style
 aye 
 
 add prehook
-
+(on beat)
 travelling kitty, tfu ambrożanka tak ruda jak ogień
 jak ganju coś walnie to brisklasa nie może, (jebnie) (briscrew)
 legenda kasinsky bez trudu zaoże, jak brisman na stole to przelew przez morze
