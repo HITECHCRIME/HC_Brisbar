@@ -32,15 +32,15 @@ czy to punk czy to bajzel, zamów kawę jesteś z nami (downward)
 swoje własne syny czy kuzyni to my wszyscy
 marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
 potem dzień jak co dzień, zamiata podłogi
-zamyka ten bar kawowego przepychu
+zamyka ten bar kawowego przepychu - 
 
------- ojciec off beat start /// 
-ojciec założyciel gaca, gacakawiarnista 
+ojciec no to ojciec - [offbeat]
+założyciel gaca, gacakawiarnista 
 kiedy wchodzi nowa paka oczy mu się błyszczą, 
 ręka w górę, węgosz blast, zbija, plask, 
 zakręcony drań robi oczy do kamery
 jak coś powie będzie szczery,
-trening ten czyni jego latte mistrza,  -------------------- different pacing
+trening ten czyni jego latte mistrza
 
 nic nie zrobisz - jego kawa
 budzi życia
@@ -50,9 +50,6 @@ poprzez fale wegańskiego mleka, z wyjściem znowu zwlekam...
 jak wszyscy wiemy z doświadczenia, w naszych genach
 czekolada w płynie - to niektórych mekka 
 
-lub (dla tych którym mekka prysła)
-
-x
 halko halkooo
 czekaj co, latte mistrza? 
 
