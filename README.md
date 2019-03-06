@@ -19,21 +19,20 @@ aye
 add prehook
 (on beat)
 travelling kitty, tfu ambrożanka tak ruda jak ogień
-jak ganju coś walnie to brisklasa nie może, (jebnie) (briscrew)
+jak ganju coś walnie to brisklasa nie może
 legenda kasinsky bez trudu zaoże, jak brisman na stole to przelew przez morze
 duchem tego baru ciociacaro, rap woman, rap shaman
-póki opłaszczeni klienci nie do końca pryśli - z brisbaru (smh different than brisbaru rhyming with baru) (klienci nie do końca wyszli?)
---------- klienci break it breaks kinda replace? ---- oplaszczeni, milczacy?
-pozwól naszym meblom dopić drinki. turbo! cascara! (pozwólmy naszym meblom wyrazić swe drinki, turbo? milczę)
+póki opłaszczeni klienci nie do końca pryśli - z brisdomu
+pozwól naszym meblom dopić drinki. turbo! cascara! (milczę)
 
 jedziesz na ten bit hankozaur posłuchaj jej myśli
 że co? o co kaman, wchodzisz do podziemia, okno zapisane flamastrami
-czy to punk czy to bajzel, zamów kawę jesteś z nami (zamknij japę jesteś z nami) ---------- downward ending
+czy to punk czy to bajzel, zamów kawę jesteś z nami (downward)
 
 swoje własne syny czy kuzyni to my wszyscy
-marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku (robi?)
-potem dzień jak co dzień, zamiatam podłogi
-otwieram/zamykam ten bar kawowego przepychu ----------------------- make it in beat add word
+marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
+potem dzień jak co dzień, zamiata podłogi
+zamyka ten bar kawowego przepychu
 
 ------ ojciec off beat start /// 
 ojciec założyciel gaca, gacakawiarnista 
