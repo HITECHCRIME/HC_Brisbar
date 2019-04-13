@@ -18,43 +18,82 @@ aye
 
 add prehook
 (on beat)
-travelling kitty, tfu ambrożanka tak ruda jak ogień
-jak ganju coś walnie to brisklasa nie może
-legenda kasinsky bez trudu zaoże, jak brisman na stole to przelew przez morze
-duchem tego baru ciociacaro, rap woman, rap shaman
-póki opłaszczeni klienci nie do końca pryśli - z brisdomu
-pozwól naszym meblom dopić drinki. turbo! cascara! (milczę)
+travelling kitty, 
+tfu ambrożanka 
+tak ruda jak ogień
+jak ganju coś walnie 
+to brisklasa nie może
 
-jedziesz na ten bit hankozaur posłuchaj jej myśli
-że co? o co kaman, wchodzisz do podziemia, okno zapisane flamastrami
-czy to punk czy to bajzel, zamów kawę jesteś z nami (downward)
+legenda kasinsky 
+bez trudu zaoże
 
-swoje własne syny czy kuzyni to my wszyscy
-marzia tłuste beaty z pianki zdobi, to znamiona majstersztyku
-potem dzień jak co dzień, zamiata podłogi
-zamyka ten bar kawowego przepychu - 
+jak brisman na stole 
+to przelew przez morze
+duchem tego baru ciociacaro 
+rap woman, rap shaman
+
+póki opłaszczeni 
+klienci nie do końca pryśli 
+z brisbaru
+
+pozwól naszym meblom dopić drinki 
+turbo! cascara! (milczę)
+
+jedziesz na ten bit hankozaur 
+posłuchaj jej myśli
+
+że co? o co kaman 
+wchodzisz do podziemia 
+okno zapisane flamastrami
+czy to punk czy to bajzel
+zamów kawę jesteś z nami (downward)
+
+swoje własne syny czy kuzyni
+to my wszyscy
+marzia tłuste beaty z pianki zdobi
+to znamiona majstersztyku
+potem dzień jak co dzień
+zamiata podłogi
+zamyka ten bar 
+kawowego przepychu - 
 
 ojciec no to ojciec - [offbeat]
 założyciel gaca, gacakawiarnista 
-kiedy wchodzi nowa paka oczy mu się błyszczą, 
-ręka w górę, węgosz blast, zbija, plask, 
-zakręcony drań robi oczy do kamery
-jak coś powie będzie szczery,
-trening ten czyni jego latte mistrza
+kiedy wchodzi nowa paka 
+oczy mu się błyszczą, 
+ręka w górę, węgosz blast, 
+zbija, plask, 
+zakręcony drań 
+robi oczy do kamery
+jak coś powie 
+będzie szczery
 
-nic nie zrobisz - jego kawa
+trening ten 
+czyni jego latte mistrza
+
+nic nie zrobisz
+jego kawa
 budzi życia
 
-już nie słyszę tego ulicznego ryku 
-poprzez fale wegańskiego mleka, z wyjściem znowu zwlekam...
-jak wszyscy wiemy z doświadczenia, w naszych genach
-czekolada w płynie - to niektórych mekka 
+już nie słyszę tego
+ulicznego ryku 
+poprzez fale wegańskiego mleka
+z wyjściem znowu zwlekam...
+jak wszyscy wiemy 
+z doświadczenia
+w naszych genach
+czekolada w płynie
+to niektórych mekka 
 
 halko halkooo
-czekaj co, latte mistrza? 
+czekaj co
+latte mistrza? 
 
-przecież lwy i konie, tworzą jak szalone, 
-naklejkami (rzepki) poświadczone, magiel z ziaren, pianek harem -------- replace tunesy
+przecież lwy i konie
+tworzą jak szalone, 
+naklejkami (rzepki) poświadczone
+magiel z ziaren
+pianek harem -------- replace tunesy
 grosz postawi cię na nogi 
 tez ma kawiarniane nałogi
 pewnie stempel ma na własność
@@ -88,16 +127,30 @@ haracz, remus, vincent. losie
 daj pokłapać soni bedzie ci oddana
 odbywać się będą wieczne bitwy zazdrości, 
 menażeria różnorodności, 
-llamy i alpaki operuja chemex z wysokosci, dobrze radzą,
-psy nie są tutaj srogie, lecz nam drogie, są bezcenne
-ale nie ujmujmy cechom gości
+llamy i alpaki 
+operuja chemex z wysokosci
+dobrze radzą,
+psy nie są tutaj srogie, 
+lecz nam drogie
+są bezcenne
+ale nie ujmujmy 
+dobrym cechom gości
 
-a teraz proszę wymieniamy to co mamy:
-etiopia, honduras, energia, brawura
-charakter i kultura, gwatemala, kostaryka, burundi, chemex
+teraz proszę 
+wymieniamy to co mamy
+etiopia
+honduras
+energia
+brawura
+charakter
+kultura
+gwatemala, kostaryka, 
+burundi, chemex
 to jest najlepsze kawomiejsce w mieście - 
-impostorom dobrej kofeiny nie wierz, to jest kontrast
-tutaj znajdziesz ukojenie nawet jak będziesz musiał czuć to
+impostorom dobrej kofeiny 
+nie wierz, to jest kontrast
+tutaj znajdziesz ukojenie 
+nawet jak będziesz musiał czuć to
 życie z nami, tutaj razem się wspieramy ----- insert some trivia
 barista, no nie sądzę, to jest brisman co ty myślisz 
 michu ci pomoże nawet w książce 
@@ -125,7 +178,7 @@ zamykam ten bar kawowego przepychu)
 
 x x x x
 brisbar, basta, krótko, 
-nie mówimy nara, przecież widzimy się jutro (no i nara) ------ (przecież would be a repetition in case of lwy i konie earlier in the song)
+nie mówimy nara, (przecież) widzimy się jutro (no i nara) ------ (przecież would be a repetition in case of lwy i konie earlier in the song)
 do kolejnego łyku ---- what to do with this little beauty
  
 
